@@ -1,2 +1,7 @@
 # Beginner_site
-Basic site for a beginner
+
+### I can't wait to see what  I'll create
+
+## I hope I have so much fun creating my website
+
+*Riah*
